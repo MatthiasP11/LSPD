@@ -1,3 +1,2 @@
 # LSPD
-noname
-A
+PROF CHE LEGGE è ALTAMENTE GAY
